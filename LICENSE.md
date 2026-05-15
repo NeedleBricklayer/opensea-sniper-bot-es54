@@ -1,4 +1,4 @@
-# 
+# vip opensea sniper bot | multi-chain-support + royalty-calculator offers the most advanced opensea sniper bot, with multi-chain-support and royalty-calculator. Ideal for
 
 
 
